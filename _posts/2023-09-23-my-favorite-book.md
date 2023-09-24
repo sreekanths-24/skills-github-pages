@@ -12,4 +12,4 @@ In this book author James Clear talks about 4 laws to build better habits. This 
 4) sharing my knowledge on youtube
 5) starting this blog page to write online.
 
-Of course I didnt start all these new habits on a single day, a started habit staking one by one as mentioned in the book.
+Of course I didnt start all these new habits on a single day, I started habit staking one by one as mentioned in the book.
